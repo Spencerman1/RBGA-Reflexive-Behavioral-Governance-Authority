@@ -1,4 +1,4 @@
-# RBGA™ Licensing Terms
+# RBGA™ Usage Terms
 
 **Reflexive Behavioral Governance Authority (RBGA™)**  
 Copyright © 2025  
